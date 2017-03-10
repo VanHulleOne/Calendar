@@ -48,3 +48,22 @@ We cleared a box stall and Dad got 1 1/2 ton of PO4 this morn. I got 100 lbs of 
 1-15-1948  
 It was warmer but snowing all day. I peddled the fish all day until 6: I went to Spence and Kelly Lakes and sold the last box at Jensa(sp) on the way home. I sold out completely and made ($20) profit. I got home at 7: I ate and dressed and took Janette, Doria Janseen, Kenny Eparvier, and the girls roller skating at Kelly Lake. The CYO didn't come.
 
+1-16-1948  
+I did chores all day. It was colder again and 10&deg; below tonight. Dad had the car fixed this morn and ground feed this aft. Dunke fixed our tractor and brought it back on the trailer. The drive gear ($46). We got the milk check ($276). Our taxes are about ($365).
+
+1-17-1948  
+It wa 22&deg; below last night and 54&deg; below in the coldest spot in Wis. Wis was the coldest state. I did chores. Dad paid the taxes at Gordon Youngs. I flooded a part of the yard to skate on but it's too small. Janette came out and stayed over night.
+
+1-18-1948  
+Dad and boys went to 8:30 and I and Mom and girls went to 10:30 mass. It was 24&deg; below about last night. About 4&deg; below the thermometer. Janette was over all day. Joe VH came at noon and stayed all day and over night. Fran and Dalores stopped in for a while tonight.
+
+1-19-1948  
+I did chores and Dad started wallpapering. We had the young stock's horns cut. It took most of the aft. but we had good luck. He cut 8 for $3.20. He didn't make them bleed a bit. I took Joe to Uncle Frank's after dinner.
+
+1-20-1948  
+I helped paper the kitchen ceiling this morn. Effre(sp) Eparvier came over and helped this aft. I got my fish ($36. For smoked herring $2.10 for boxes; $6.20 for fresh herring; and $4.50 for a scale). I did chore like sixty this aft. after 3: Phyllis stayed in town. It's blowing and cold.
+
+1-21-1948  
+I peddled fish all day. I sold about $24 worth of fish and got $39 for it so I made about $15. I didn't get home until 7:15. I was way up to Suring. Janette came out to supper. We all went to the square dance at CC and didn't get home until 2:
+
+
